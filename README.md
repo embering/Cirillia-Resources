@@ -1,1 +1,0 @@
-# Cirillia-Resources
